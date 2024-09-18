@@ -1,7 +1,8 @@
-https://yzwandyq.lanzout.com/b0izuw52d 密码:3d3n
+更多社会主义建设资料在https://github.com/yzwandyq/Prolet
+
 # 毛泽东选集
 选集里包含1977年之前的5卷、1991年修订发行的4卷、更包含6,7,8非官方卷
-
+蓝奏云https://yzwandyq.lanzout.com/b0izuw52d 密码:3d3n
 
 # 毛泽东选集十卷合订本 合集说明
 
